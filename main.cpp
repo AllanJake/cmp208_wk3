@@ -1,1 +1,1 @@
-//ur a dick
+//ur a kind person
